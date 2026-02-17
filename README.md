@@ -1,0 +1,1 @@
+![Thought process image](Screenshot_20260217_113440-1.png)
